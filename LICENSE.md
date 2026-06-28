@@ -1,4 +1,4 @@
-# 
+# Custom Icecream PDF Editor templates for Mac OS | Ultimate Icecream PDF Editor templates for PC Windows. Featuring batch processing and mobile apps — optimized for maximum performance on every platform.
 
 
 
